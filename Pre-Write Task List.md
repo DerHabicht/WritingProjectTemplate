@@ -1,8 +1,8 @@
 # Research
 
 # Outline
-- [ ] 3-act story structure
-- [ ] Short outline
+- [ ] Rough sketch
+- [ ] Bullet/short outline
 - [ ] Long outline
 - [ ] Scene cards
 

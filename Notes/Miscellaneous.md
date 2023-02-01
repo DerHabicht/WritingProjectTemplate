@@ -1,0 +1,1 @@
+*Catch-all for thoughts/ideas. Try not to use it. If you really can't figure out where it needs to go, though, it's better to put it here than to not have it written down at all.*

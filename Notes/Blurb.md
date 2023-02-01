@@ -1,0 +1,1 @@
+*Write the blurb for your book before you write your book.*

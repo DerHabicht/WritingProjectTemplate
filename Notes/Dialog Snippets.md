@@ -1,0 +1,1 @@
+*Dialog that you think of outside of writing time (or for other places in the story that you're not currently working on).* 

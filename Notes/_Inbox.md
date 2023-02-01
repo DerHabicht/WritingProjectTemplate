@@ -1,0 +1,1 @@
+*This is where you capture tasks and thoughts that occur to you. Put it here instead of trying to figure out where it should be filed. Review and clear out (i.e. move notes to the appropriate place) often.*
